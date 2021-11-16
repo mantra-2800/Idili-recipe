@@ -15,7 +15,7 @@ If you are using a cooker, use it without a vent and steam it for 10 minutes and
 
 IDILI CHUTNEY MAKING RECIPE
 
-Making south Indian coconut chutney for dosa and idli is very simple; just blend fresh coconut with chillies, curd and ginger and mix tempered mustard seeds. However, the real taste differentiators in this recipe are roasted chana dal, tamarind paste, cumin seeds and curry leaves. Follow this recipe and discover how good the chutney tastes, and yes, don’t blame us if you get addicted to it.
+Making south Indian coconut chutney for dosa and idli is very simple; just blend fresh coconut with chillies, curd and ginger and mix tempered mustard seeds. However, the real taste differentiators in this recipe are roasted chana dal, tamarind paste, cumin seeds and curry leaves. Follow this recipe and discover how good the chutney tastes, and yes, don’t blame me if you get addicted to it.
 
 SAMBHAR MAKING RECIPE
 
